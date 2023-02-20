@@ -1,5 +1,1 @@
-# ZeusBEEF
-
-Operation Strix
-
-Hack Yuan
+I'm still alive lol
